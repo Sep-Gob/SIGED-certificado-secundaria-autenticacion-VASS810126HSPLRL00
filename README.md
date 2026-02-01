@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VASS810126HSPLRL00
+VASS810126HSPLRL00
